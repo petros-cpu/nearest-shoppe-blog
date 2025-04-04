@@ -1,0 +1,1 @@
+# nearest-shoppe-blog
